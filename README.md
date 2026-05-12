@@ -17,9 +17,10 @@ Promote responsible consumption
 
 Digitally track food redistribution impacta
 
+
 🌍 Sustainable Development Goals (SDGs)
 jh
-This project aligns with:
+This project aligns with:m
 
 Goal 1 – No Poverty
 
