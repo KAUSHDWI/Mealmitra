@@ -11,7 +11,7 @@ Reduce food waste
 
 Support underprivileged communitiess
 
-Improve coordination between donors and NGOs hi
+Improve coordination between donors and NGOs 
 
 Promote responsible consumption 
 
